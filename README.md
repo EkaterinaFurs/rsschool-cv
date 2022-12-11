@@ -1,1 +1,1 @@
-# rsschool-cv
+https://EkaterinaFurs.github.io/rsschool-cv/
